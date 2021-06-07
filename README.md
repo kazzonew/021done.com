@@ -6,3 +6,4 @@ Our Partners Are:
 https://nykdaily.com
 https://www.gpluxuryrental.com
 https://dailytexasnews.com
+https://www.dentistinfargo.com
